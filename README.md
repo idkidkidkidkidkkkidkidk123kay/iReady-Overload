@@ -1,1 +1,1 @@
-join the discord: https://discord.gg/JdFwwCx4Tm
+no more iready overload but u can join new server for OTHER hacks. https://discord.gg/nnSXaMUP6B
